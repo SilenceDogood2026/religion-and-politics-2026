@@ -1,3 +1,5 @@
+Reference to PDF file: the pamphlet religion and politics 2026
+
 # RELIGION & POLITICS  
 From Gospel to Group  
 First Edition — Published February 14, 2026  
